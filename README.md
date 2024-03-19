@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PIZZAMAN121
+- 👀 I’m interested in EaglercraftX
+- 🌱 I’m currently learning video game coding
+- 📫 How to reach me go to scratch.mit.edu and type in "pizzaman official studio", then click the first studio there
+- 😄 Pronouns: He, him
+- ⚡ Fun fact: I like spicy food
